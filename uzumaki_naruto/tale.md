@@ -1,0 +1,2 @@
+This is the tale of a boy who suffers darkness and agony to become the greatest ninja in the history of "Konoha", who goes by the name 'Naruto Uzumaki'.
+His friend, so called brother, 'Sasuke Uchiha', also suffers from lonliness, but his feeling of revenge takes over his morale, and he gives in to darkness, to emerge more powerful than anyone in the history of 'Konoha', or the entire shinobi world for that matter.
